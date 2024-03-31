@@ -8,7 +8,7 @@
 
  
 
-  <a href=" https://hariomyadav1.github.io/Dynamic-Island-Iphone/"><strong>➥ Live  </strong></a>
+  <a href="  "><strong>➥ Live  </strong></a>
 
 </div>
 
